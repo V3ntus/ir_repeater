@@ -35,3 +35,6 @@ Out: 7
 
 */
 ```
+![PXL_20211215_015757027](https://user-images.githubusercontent.com/29584664/146110363-3c7779cc-bb24-4a76-968e-8c4e71aca8db.jpg)
+![PXL_20211215_015747384](https://user-images.githubusercontent.com/29584664/146110370-1ec11b4c-8dd0-49f9-85fd-0f1590d17c11.jpg)
+
